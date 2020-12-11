@@ -4,6 +4,10 @@
 
 This page has links to long-form talks from various speakers, all hosted virtually. 
 
+### Seminars in Economic Theory (SET)
+
+SET is a series of online economic theory seminars. The seminar is open for everyone who desires to attend. The seminars will take place on a weekly basis on Wednesdays at 3 PM British Time. Please visit our [website](https://sites.google.com/view/seminarseconomictheory/home) to see our schedule and sign-up to receive Zoom links. 
+
 ### YSI Graduate Economic History Seminar
 
 The Economic History Working Group of the Young Scholars Initiative is pleased to announce the Fall/Winter program for its 2020-2021 Economic History Graduate Webinar Series. The webinar sessions will run for 60’ every other Tuesday on Zoom at 5pm CET (11am EDT, 8am PDT) starting the 29th of September. If you want to attend our webinar series, please register [here](https://docs.google.com/forms/d/e/1FAIpQLScGBDaidLh136VYBpJSyIA-6TXL14VZZTyPKR7P3v1iTBVp2g/viewform). The abstracts of the papers presented can be found in our [website](https://ysi.ineteconomics.org/project/5f316897689c756fb5c52785). 
